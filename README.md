@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **anirbanpramanik1000@gmail.com || LinkedIn:https://www.linkedin.com/in/anirban-pramanik02/**
 
-- ⚡ Fun fact **I am funny**
+- ⚡ Fun fact ** That i am funny**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
