@@ -10,7 +10,7 @@
 
 - 💬 Ask me about **Data Structure Algorithms & Front End Developement**
 
-- 📫 How to reach me **anirbanpramanik1000@gmail.com || LinkedIn:https://www.linkedin.com/in/anirban-pramanik02/**
+- 📫 How to reach me **anirban.pramanik.career@gmail.com || LinkedIn:https://www.linkedin.com/in/anirban-pramanik02/**
 
 - ⚡ Fun fact **That i am funny**
 
